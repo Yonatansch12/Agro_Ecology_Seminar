@@ -1,0 +1,1 @@
+These articles served as sources of information for the seminar paper. Two of the articles are review papers, which provided broad and general information on the topic. The other two articles are scientific papers, which I analyzed and presented in my slideshow and summary.
